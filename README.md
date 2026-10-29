@@ -1,3 +1,3 @@
-## DAILY RANDOM ACCOUNT
+## WEEKLY RANDOM ACCOUNT
 
 https://github.com/DMS-Menula
